@@ -1,3 +1,3 @@
 # janggum
 janggum_project
-장금이ㅣㅣ
+장금이
